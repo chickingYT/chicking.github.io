@@ -1,2 +1,2 @@
-# chicking.github.io
+# chickingYT.github.io
 I'm chicking
